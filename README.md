@@ -1,1 +1,1 @@
-# Lisans-Bitirme-al-mas-
+# Lisans-Bitirme-Calismasi
